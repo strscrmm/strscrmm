@@ -6,7 +6,7 @@
   **dni**: under 13, **pro/comship**, **alfreds playhouse fans**, **gore, and triggering stuff (s/h, and etc.)**
 - **main interests**: **iasip**, tlm(s), lca, lcnl, lcu, lng & lmk
   
-- **etc. interests**: transformers, jurassic park/world, guardians of the galaxy, sharks (+ marine biology) & space
+- **etc. interests**: transformers, jurassic park/world, guardians of the galaxy, sgt. frog/keroro gunsou, sharks (+ marine biology) & space
 
 
 <!---
