@@ -4,8 +4,6 @@
 
  ⁺‧₊˚ ‎ ‎ ‎ ‎ ‎ **he** ‎/ ‎him ‎, ‎ only ‎ ‎masc. ‎ ‎‎terms ‎ ‎‎please ‎ ***!!*** ‎ **—** ‎ **no** gender neu. terms
 
- ‎ ***+*** ‎ **i ‎ can ‎ go ‎ by ‎ the ‎ name ‎ of ‎ a ‎ skin ‎ im ‎ using** ‎ too ‎ if ‎ that ‎ works ‎ **—** ‎ **idm** ***!!***
-
 **6**teen ‎ ‎‎08/**25** ‎ ***+*** ‎ **taken** ‎ ![](https://media.discordapp.net/attachments/903364339464044575/1077671045307314296/C9968517-9DE6-4D43-8CC4-8DFAF79A9840.gif)
 
 ![](https://i.postimg.cc/jd8PPY35/Untitled512-20221015082241.png) ‎ ![](https://i.postimg.cc/dVVTXtsg/Untitled512-20220919152037.png) ‎ ![](https://i.postimg.cc/N05Mzqdx/Untitled512-20220918064628.png)
